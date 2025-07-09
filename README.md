@@ -6,7 +6,7 @@ I build sleek, high-performing web experiences—from **decentralized apps** to 
 ---
 
 ## 🌐 Let’s Connect  
-Wanna chat Web3, or ideas?
+Wanna chat Web3, or share ideas?
 
 <p align="center">
   <a href="https://www.linkedin.com/in/awofisayothompson">
